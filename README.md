@@ -1,1 +1,0 @@
-# mulliganbay.github.io
